@@ -162,6 +162,15 @@ We will let You know via email and/or a prominent notice on Our Service, prior t
 
 You are advised to review this Privacy Policy periodically for any changes. Changes to this Privacy Policy are effective when they are posted on this page.
 
+
+Payment and Subscriptions
+
+• Payment will be charged to your iTunes account at confirmation of purchase and will automatically renew (at the duration/price selected) unless auto-renew is turned off at least 24 hrs before the end of the current period.
+• Account will be charged for renewal within 24-hours prior to the end of the current period
+• Current subscription may not be cancelled during the active subscription period; however, you can manage your subscription and/or turn off auto-renewal by visiting your iTunes Account Settings after prchse.
+• Any unused portion of the free one month initial period will be forfeited when you purchases a subscription.
+
+
 Contact Us
 If you have any questions about this Privacy Policy, You can contact us:
 
